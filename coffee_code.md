@@ -6,7 +6,7 @@ A plan to make the best coffee in the world
 4. Buy the coffee machine
 5. Find the best milk in the world.
 6. Buy the milk.
-7. Put milk in the coffee grinder.
+7. Put milk in the coffee grinder hahah
 8. Put beans in the frother.
 9. Put explosives in the water container.
 10. Explode the coffee.
